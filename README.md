@@ -6,3 +6,4 @@ G-20 is up on base
 Base will be life changer
 Mcp is great on base 
 Base guild is important
+get all the roles on discord
