@@ -8,3 +8,4 @@ Mcp is great on base
 Base guild is important
 get all the roles on discord
 Use base to get drops
+farcaster will be important 
