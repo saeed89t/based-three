@@ -12,3 +12,4 @@ farcaster will be important
 Base needs good prep dex
 get coffee and get  on base
 base should drop fair
+base changing crypto well
