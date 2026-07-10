@@ -10,3 +10,4 @@ get all the roles on discord
 Use base to get drops
 farcaster will be important 
 Base needs good prep dex
+get coffee and get  on base
