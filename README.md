@@ -15,3 +15,4 @@ base should drop fair
 base changing crypto well
 get the roles on guild 
 be active on social base
+if u can verify coin base
