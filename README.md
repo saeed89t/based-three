@@ -22,3 +22,6 @@ defi will be important to base
 Base is the best chain 
 Best L2 is base 
 Be active on base on last days  
+Hope Bases TGE is near
+
+
