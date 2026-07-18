@@ -28,3 +28,4 @@ Base should know its OGs
 Base will be the biggest of 2026
 base getting better day by day
 Base will help ETH mainnet shine again 
+need base fast 
